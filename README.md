@@ -13,20 +13,23 @@ low so be
 aye
 
 running xlt who did to who
-time to breath
+it's time to breath
 i don't wanna know 
 what you gonna wanna be
 
-i don't weigh care 
+i don't know fuck
+freight weight care 
 go away
-
-an
+just go
+through it
+fucking blast 
+another day
 
 another day
 another day
 what you mean
 
-i don't fucking wanna know
+i don't f'wanna know
 what you fucking dream
 i don't wanna know
 what you fucking dream
