@@ -1,8 +1,11 @@
-# HC_SG57_Dream
+# MOTHNODE_ Dream
 Hitech Crime Single 'Dream'
 
 [FREE] Dark Trap Beat 2019 | Dope Hip Hop Rap Instrumental (Prod.Leo SMG x BenOnTheBeat)
 https://www.youtube.com/watch?v=mKF994X18Xc
+
+## Lyrcis
+```
 
 running xlt on a low so be
 running xlt on a low so be
@@ -19,6 +22,7 @@ what you gonna wanna be
 
 i don't know fuck
 freight weight care 
+unplug me and
 go away
 just go
 through it
@@ -38,6 +42,12 @@ tonight
 i don't wanna go 
 
 i don't wanna fight
+
+```
+
+## Music Video
+Me sitting in a headset all day, disregarding relationships in dark rooms. 
+Paraphrase of modern society, "local scene" from the future.
 
 
 
