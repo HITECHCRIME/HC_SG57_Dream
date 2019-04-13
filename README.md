@@ -18,7 +18,7 @@ aye
 running xlt who did to who
 it's time to breath
 i don't wanna know 
-what you gonna wanna be
+what you gonna wannabe
 
 i don't know fuck
 freight weight care 
@@ -40,6 +40,8 @@ what you fucking dream
 tonight
 
 i don't wanna go 
+
+wanna lie & rest
 
 i don't wanna fight
 
